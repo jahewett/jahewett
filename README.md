@@ -1,5 +1,5 @@
 # A bit about me
-:octocat: I’m [Jimi Hewett](https://www.linkedin.com/in/jamesahewett/), an engineering leader currently working at [Clear Bank](https://clear.bank/). With over a decade of experience leading engineering teams at some of the UK’s best fintech startups such as [Monzo Bank](https://monzo.com/) and [Sonovate](https://www.sonovate.com/) (and surviving to tell the tale 🧑‍🚀), I’ve shifted my focus from hands-on product building to developing high-performing teams that deliver real customer and business impact.
+:octocat: I’m [Jimi Hewett](https://www.linkedin.com/in/jamesahewett/), an engineering leader currently working at [Clear Bank](https://clear.bank/). With over a decade of experience working with engineering teams at some of the UK’s best fintech startups such as [Monzo Bank](https://monzo.com/) and [Sonovate](http://www.sonovate.com/) (and surviving to tell the tale 🧑‍🚀), I’ve shifted my focus from hands-on product building to developing high-performing teams that deliver real customer and business impact.
 
 ❔Curious about how I operate as a leader? Check out my [manager resources]() to learn more about my principles and approach.
 
