@@ -1,5 +1,5 @@
 # A bit about me
-:octocat: I’m [Jimi Hewett](https://www.linkedin.com/in/jamesahewett/), an engineering leader currently working at [Clear Bank](https://clear.bank/). With over a decade of experience working with engineering teams at some of the UK’s best fintech startups such as [Monzo Bank](https://monzo.com/) and [Sonovate](http://www.sonovate.com/) (and surviving to tell the tale 🧑‍🚀), I’ve shifted my focus from hands-on product building to developing high-performing teams that deliver real customer and business impact.
+:octocat: I’m [Jimi Hewett](https://www.linkedin.com/in/jamesahewett/), an engineering leader currently working at [Clear Bank](https://clear.bank/). With over a decade of experience working with engineering teams at some of the UK’s finest fintech startups such as [Monzo Bank](https://monzo.com/) and [Sonovate](http://www.sonovate.com/) (and surviving to tell the tale 🧑‍🚀), I’ve shifted my focus from hands-on product building to developing high-performing teams that deliver real customer and business impact.
 
 ❔Curious about how I operate as a leader? Check out my [manager resources]() to learn more about my principles and approach.
 
@@ -9,7 +9,7 @@
 
 I’ve been with my wife, Sarah, since I was 18 and she was 17—which officially qualifies as “a long time!” We’ve built a life with our two amazing daughters, Olivia and Lottie, plus our two dalmatians, who are anxious about absolutely everything (except us).
 
-### Staying strong & fit, physically and mentally 💪
+### Physicall & mental fitness 💪
 
 For me, fitness isn’t just a routine; it’s a way of life. I balance CrossFit, weightlifting, running, biking, swimming, and even surfing with the chaos of daily life. Dog walks? The unsung hero of stress relief and bonus cardio. Staying active helps me manage the pressures of work and stay mentally healthy.
 
