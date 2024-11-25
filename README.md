@@ -9,7 +9,7 @@
 
 I’ve been with my wife, Sarah, since I was 18 and she was 17—which officially qualifies as “a long time!” We’ve built a life with our two amazing daughters, Olivia and Lottie, plus our two dalmatians, who are anxious about absolutely everything (except us).
 
-### Physicall & mental fitness 💪
+### Functional fitness 💪
 
 For me, fitness isn’t just a routine; it’s a way of life. I balance CrossFit, weightlifting, running, biking, swimming, and even surfing with the chaos of daily life. Dog walks? The unsung hero of stress relief and bonus cardio. Staying active helps me manage the pressures of work and stay mentally healthy.
 
