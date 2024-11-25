@@ -17,10 +17,10 @@ For me, fitness isn’t just a routine; it’s a way of life. I balance CrossFit
 
 Once upon a time, I was in a band. Want to know the details? Buy me a beer, and I’ll tell you all about the glitz and glamour of touring the UK and Europe in the late 90s! These days, I’ve swapped playing on stage for listening and watching incredible artists and being an *unapologetic* music snob.
 
-### Books & Podcasts 🧠
+### Books & podcasts 🧠
 
 Books and podcasts are my go-to for learning, thinking, and inspiration. Whether it’s leadership insights, fintech trends, or a gripping story, I’m always on the hunt for great recommendations—send them my way!
 
 #### Thanks for reading!
 
-Let’s connect over fitness, music, or something nerdy... life’s better with a bit of everything.
+Let’s connect over fitness, music, or something nerdy... 💚
